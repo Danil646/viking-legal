@@ -1,0 +1,1 @@
+# Viking: oferta, privacy, support
